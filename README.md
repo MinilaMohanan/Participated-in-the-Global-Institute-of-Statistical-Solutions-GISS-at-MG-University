@@ -4,3 +4,4 @@
 🔍 Explored cutting-edge statistical solutions and methodologies, expanding my knowledge under the guidance of experts in the field. 📊💡
 
 🎓 Excited to apply these learnings in future endeavors! 🚀 #GISS #StatisticalSolutions #ContinuousLearning #ProfessionalDevelopment #MGUniversity
+https://www.linkedin.com/in/minila-k-m-0b7199263/recent-activity/all/
